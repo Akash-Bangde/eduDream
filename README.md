@@ -2,4 +2,4 @@
 Dream Education Repository
 
 Akash Uttam Bangade
-Sneha Akash
+Sneha Akash Bangade
